@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GamingRaptor946
+- 👀 I’m interested in coding and dinosaurs!
+- 🌱 I’m currently learning Minecraft Modding
